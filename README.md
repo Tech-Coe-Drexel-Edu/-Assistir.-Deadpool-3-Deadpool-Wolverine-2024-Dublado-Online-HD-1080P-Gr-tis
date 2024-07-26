@@ -25,9 +25,7 @@ Direção: Shawn Levy | Roteiro Shawn Levy, Rhett Reese
 
 Elenco: Ryan Reynolds, Hugh Jackman, Emma Corrin
 
-Cuevana | Estrenos | Pelispedia | Pelisplus | Gnula | Repelisplus | Repelis | Pelis | Pelisplus| | Netflix | Cine | Cinema | Calidad | Mejor | Chile 20 de junho de 2024 No cinema | 1h 36min | Aventura, Animação, Comédia, Família Direção: Kelsey Mann | Roteiro Meg LeFauve, Dave Holstein Elenco: Miá Mello, Amy Poehler, Isabella Guarnieri Título original Deadpool & Wolverine
-
-24 de junho de 2024 No cinema | 1h 36min | Aventura, Animação, Comédia, Família Direção: Kelsey Mann | Roteiro Meg LeFauve, Dave Holstein Elenco: Miá Mello, Amy Poehler, Isabella Guarnieri Título original Deadpool 3 (Deadpool & Wolverine)
+Cuevana | Estrenos | Pelispedia | Pelisplus | Gnula | Repelisplus | Repelis | Pelis | Pelisplus| | Netflix | Cine | Cinema | Calidad | Mejor | Chile 20 de julho de 2024 No cinema | 1h 36min | Aventura, Animação, Comédia, Família Direção: Kelsey Mann | Roteiro Meg LeFauve, Dave Holstein Elenco: Miá Mello, Amy Poehler, Isabella Guarnieri Título original Deadpool & Wolverine
 
 Sinopse
 
